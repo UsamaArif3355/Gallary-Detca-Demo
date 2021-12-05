@@ -1,0 +1,1 @@
+# Gallary-Detca-Demo
